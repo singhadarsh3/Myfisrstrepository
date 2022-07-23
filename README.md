@@ -1,5 +1,4 @@
 # Myfisrstrepository
 My future will be bright
  I will win this world.
-This is my time will conquer my world.
-Hey ashellon.com is available
+I will see the world how i can conquer.
